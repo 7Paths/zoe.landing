@@ -1,1 +1,1 @@
-**Built with :blue-heart: by Zoe Development Team**
+**Built with :blue_heart: by Zoe Development Team**
